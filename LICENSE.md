@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks updated Scripts is the best escape waves for lucky blocks Script, featuring silent aim and instant win. Safe and
 
 
 
